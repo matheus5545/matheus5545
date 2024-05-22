@@ -8,4 +8,4 @@ Meu nome é Matheus C. Souza :D
 ### Você pode entrar em contato comigo 📫 :
 cauadesouzamatheus@gmail.com
 
-![](https://tenor.com/pt-BR/view/lulu-cute-gif-25973509)
+![](https://tenor.com/bU83J.gif)
